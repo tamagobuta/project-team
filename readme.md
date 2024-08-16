@@ -1,0 +1,88 @@
+- lolbeans https://lolbeans.io
+- krunker https://krunker.io
+- 1v1lol https://1v1.lol
+- yabai-game https://tamagobuta.github.io
+- search https://bing.com
+- Win11 https://win11.blueedge.com
+- craftnight https://Craftnite.io
+- hexanaot https://hexanaot.io/
+- skillfite https://Skillfite.io
+- Tribal https://Tribals.io
+- spilix https://Splix.io
+- chompers https://Chompers.io
+- Bloxd https://Bloxd.io
+- satbfish https://https://stabfish.io/
+- crowdcity https://CrowdCity.io
+- Litement https://https://litemint.io/
+- Shapez https://Shapez.io
+- Duckpark.io https://DuckPark.io
+- cleanup https://http://cleanup.io/
+- YoHoHo https://YoHoHo.io
+- Areena https://Areena.io
+- Office https://Office.io
+- tornado https://Tornado.io
+- KRUNT https://KRUNT.io
+- Crazysteve https://CrazySteve.io
+- yumy https://yumy.io
+- Evowars https://EvoWars.io
+- tetris https://www.kotakestudio.co.jp/game/tetris/
+- 2048 https://play2048.co
+- narrow https://narrow.one
+- hole https://hole-io.com/
+- tetrio https://tetr.io
+- agario https://agar.io
+- Diep.io https://Diep.io
+- Wings.io https://Wings.io
+- Zlop.io https://Zlop.io
+- Braains.io https://Braains.io
+- Narwhale.io https://Narwhale.io
+- Driftin.io https://Driftin.io
+- Mope.io https://Mope.io
+-  Space1.io https://Space1.io
+-  Battl.io https://Battl.io
+- Arrow.io https://Arrow.io
+- Massivematch.io https://Massivematch.io
+- Deeeep.io https://Deeeep.io
+- MyBall.io https://MyBall.io
+- Vanar.io https://Vanar.io
+-  Slain.io  https://Slain.io
+-  Hordes.io https://Hordes.io
+-  Bombs.io https://Bombs.io
+-  Tiles.io https://Tiles.io
+-  Vertix.io https://Vertix.io
+-  Gobattle.io https://Gobattle.io
+-  Astroe.io　https://Astroe.io
+-  Skribbl.io　https://Skribbl.io
+-  Brutal.io https://Brutal.io
+-  Starve.io https://Starve.io
+-  Smelter.io https://Smelter.io
+-  Kartwars.io https://Kartwars.io
+-  Bloble.io https://Bloble.io
+-  GoBattle.io　https://GoBattle.io
+-  game's pot https://www.afsgames.com/
+-  cookieclicker https://orteil.dashnet.org/cookieclicker/
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+-  
+- 
+- 
+- 
+- 
+-  
+- 
+- 
+- 
+- 
+
+  
